@@ -11,7 +11,7 @@ Get in touch by my linked social account!
 ## Fun Facts:
 
 * I'm an extrovert, so contact me anytime you want!
-* Althought I'm a tech nerd, people tend to assume that I'm an athelete.
+* Althought being a tech nerd, people asumming that I'm an athelete.
 * I'm also really good at photography.
 * Looking to do content creation.
 * Hobbies: gym, photography, building things, F1, and cats
